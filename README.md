@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @shoptak
+- 👀 I’m interested in coding
+- 🌱 I’m currently learning at class 8 
+- 😄 I am a footballer
+- ⚡ Mahadev ka vakta..
